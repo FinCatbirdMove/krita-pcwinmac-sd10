@@ -1,4 +1,4 @@
-# 
+# Professional Krita filters for Mac OS | Premium Krita filters for PC Windows. Featuring color-correction and grid-and-guides — optimized for maximum performance on every platform.
 
 
 
